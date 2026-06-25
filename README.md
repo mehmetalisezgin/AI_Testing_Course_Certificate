@@ -1,2 +1,3 @@
 # AI_Testing_Course_Certificate
-[Endava CV Mehmet Ali Sezgin.pdf](https://github.com/user-attachments/files/24979803/Endava.CV.Mehmet.Ali.Sezgin.pdf)
+[MEHMET ALİ SEZGİN - LLM Evaluation Engineer.pdf](https://github.com/user-attachments/files/29345021/MEHMET.ALI.SEZGIN.-.LLM.Evaluation.Engineer.pdf)
+
